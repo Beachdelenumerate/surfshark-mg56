@@ -1,4 +1,4 @@
-
+professional Surfshark Addon | 24/7-support + smart-DNS is the best Surfshark addon, featuring 24/7-support and smart-DNS. Secure, fast, and optimized for privacy.
 
 
 
